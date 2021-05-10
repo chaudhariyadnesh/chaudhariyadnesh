@@ -4,4 +4,4 @@
 - 🌱 I’m currently learning Azure and React.
 - 🎉 I have completed AWS Certified cloud Practioner, NDG Linux Unhatched and Cisco Introducion to CyberSecurity.
 - 🤩 We can be great friends if u like anything related to tech, 📱gadgets and 🏏cricket.
-- 📫 How to reach me via email at 'yadneshchaudhari6@gmail.com'
+- 📫 How to reach me via email at 'yadneshchaudhari22@live.com'
